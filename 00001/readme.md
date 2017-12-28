@@ -1,3 +1,3 @@
 楊立宇之乱<br>
 2017年12月27日 23:32<br>
-<img src=>
+<img src=https://raw.githubusercontent.com/3cmFatHome/Gossiping/master/00001/img/0.png>
