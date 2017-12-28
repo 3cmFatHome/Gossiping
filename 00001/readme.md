@@ -7,7 +7,8 @@
 陳世葳 : https://www.facebook.com/profile.php?id=100001891520100<br><br>
 楊立宇没有正当工作，一直靠老婆援交养活，不但吃软饭，还涉及到毒品纠纷（4号海洛因）<br><br>
 <img src="https://raw.githubusercontent.com/3cmFatHome/Gossiping/master/00001/img/1.png" /><br><br>
-老婆也忍受不了他，最后发了一张 绿帽卡给他，离婚分手<br><br>
+老婆也忍受不了他，最后发了一张 绿帽卡给他，离婚分手<br>
+你老婆都不要你了，好好經營你的事業不是很好嗎？每天在那邊講小講鼻的！是在吵人氣還是在幹嘛？低調很難嗎？<br><br>
 <img src="https://raw.githubusercontent.com/3cmFatHome/Gossiping/master/00001/img/2.png" /><br><br>
 好像毒瘾发作，神志不清状态下，跑到前妻 FB 闹板，缺毒资了？？？<br><br>
 <img src="https://raw.githubusercontent.com/3cmFatHome/Gossiping/master/00001/img/3.png" /><br><br>
