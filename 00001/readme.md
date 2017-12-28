@@ -12,7 +12,7 @@
 好像毒瘾发作，神志不清状态下，跑到前妻 FB 闹板，缺毒资了？？？<br><br>
 <img src="https://raw.githubusercontent.com/3cmFatHome/Gossiping/master/00001/img/3.png" /><br><br>
 我左青龍、右白虎、老牛在腰間、龍頭在胸口，人擋殺人、佛擋殺佛。<br><br>
-<img src="https://raw.githubusercontent.com/3cmFatHome/Gossiping/master/00001/img/4.png" /><br><br>
+<img src="https://raw.githubusercontent.com/3cmFatHome/Gossiping/master/00001/img/4x.png" /><br><br>
 <br>
 <br>
 <br>
