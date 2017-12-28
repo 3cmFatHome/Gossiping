@@ -1,4 +1,4 @@
-#楊立宇 林某偷客兄 XD<br>
+# 楊立宇 林某偷客兄 XD<br>
 2017年12月27日 23:32<br>
 楊立宇开始挑衅<br><br>
 <img src="https://raw.githubusercontent.com/3cmFatHome/Gossiping/master/00001/img/0.png" /><br><br>
